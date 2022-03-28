@@ -1,3 +1,2 @@
-# pyhton
-python*
-lol cant spell
+# python
+ngl kinda caca facts
